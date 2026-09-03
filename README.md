@@ -37,5 +37,6 @@ Third-Year Student
 
 ## Connect With Me
 
-[LinkedIn]([https://www.linkedin.com/in/habiba-mohamed-sobhi-82a21935](https://www.linkedin.com/in/habiba-mohamed-sobhi-82a21935a)
+[LinkedIn](https://www.linkedin.com/in/habiba-mohamed-sobhi-82a21935a)
+
 
